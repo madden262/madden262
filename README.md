@@ -2,7 +2,7 @@
 - 👀 I’m interested in changing the world
 - 🌱 I’m currently learning new life forms
 - 💞️ I’m looking to collaborate on meeting new life forms
-- 📫 How to reach me: good question i was reached out to
+- 📫 How to reach me: send me 2000$ by etransfer papapommep@gmail.com 
 - 😄 Pronouns: no thks
 - ⚡ Fun fact: most facts are fun
 
